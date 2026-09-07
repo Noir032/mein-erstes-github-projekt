@@ -6,5 +6,9 @@ Pronouns: Fish
 
 Das möchte ich lernen:
 
--Kernspaltung
+-Kernspaltung,
 -Regierungsschwachstellen
+
+
+Ich und mein Holz, holzi holzi holz
+Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,Kohle,
